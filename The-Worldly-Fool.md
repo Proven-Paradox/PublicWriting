@@ -4,7 +4,7 @@ On January 7th, 2021, it was being reported that Kevin Greeson had died after ta
 
 Now, the fact that he took so much mirth from the death of someone else is reason enough on its own that he would not be stepping beyond the Pearly Gates. (For what it's worth, most self identifying Christians won't be either. If you do not understand why, I suggest you read the Bible.) He was understandably nervous as he  watched the scenery from Charon's boat. The cruise ship had entire shelves full of Dante's Inferno to read through, advertised as tour guides. They also had cliff notes versions on hand, which the Fool was using for a quick self evaluation.
 
-Any strikes for Lust? Not really, unless Hell was ultra conservative about its definitions. Sex out of wedlock, yeah, but that was about it. He shrugged and decided to place his bets on Hell actually not giving a damn about that. Literally. Yeah, the sign said abandon all hope and all that, but the Fool could see no downside to trying.
+Any strikes for Lust? Not really, unless Hell was ultra conservative about its definitions. Sex out of wedlock, yeah, but that was about it. He shrugged and decided to place his bets on Hell not giving a damn about that. Literally. Yeah, the sign said abandon all hope and all that, but the Fool could see no downside to trying.
 
 Next level. Gluttony? A little bit, yeah. But mostly when he was younger and too busy in college to give a damn. He'd lost a lot of weight in the last few years of his life. Maybe they'd let him off with a warning.
 
