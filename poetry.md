@@ -1,6 +1,6 @@
-# The Seal of the Forgotten Foundations
+# Those Forgotten
 
-The poem in question is an inscription at the entrance to a realm I'm calling the Forgotten Foundations. Basically a part of the afterlife made for dead (forgotten and ruined) places. I describe it as appearing on a stone obelisk set beneath running water, indicating a place in real life that had the inscription carved on it, then tossed it into a river so it would erode away more quickly to be added to that realm.
+This is an inscription at the entrance to  the Forgotten Foundations. Basically a part of the afterlife made for dead (forgotten and ruined) places. I describe it as appearing on a stone obelisk set beneath running water, indicating a place in real life that had the inscription carved on it, then tossed it into a river so it would erode away more quickly to be added to that realm.
 
 Here lies the Forgotten Foundations
 The final fate of all homes, cities, and nations.
